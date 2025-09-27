@@ -1,1 +1,1 @@
-I like sky blue background 
+I like sky red background.
